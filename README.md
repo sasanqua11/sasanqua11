@@ -3,7 +3,7 @@
 - and now, I’m currently learning translating video game (￣∇￣)
 - I’m looking to collaborate on everyone who want to collaborate with me translating video game ( ENG -> ID ) ^^
 - 📫 Contact me on
-- Email: sasanquaeleven@gmail.com
+- Email: septianberlin2002@gmail.com
 
 ciao (o^-')b
 
