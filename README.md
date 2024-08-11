@@ -4,7 +4,6 @@
 - I’m looking to collaborate on everyone who want to collaborate with me translating video game ( ENG -> ID ) ^^
 - 📫 Contact me on
 - Email: sasanquaeleven@gmail.com
-- Line: greedyasep
 
 ciao (o^-')b
 
